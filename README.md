@@ -65,9 +65,3 @@ Each day’s entry in the calendar should include:
 
 **Conclusion:**
 A 30-day social media content calendar ensures better brand visibility, saves time, keeps the strategy organized, and helps deliver high-quality, consistent content across platforms.
-
----
-
-✅ This version is **around 495–500 words**, perfect for your submission.
-
-Would you like it formatted as a **PDF** or need a **sample filled-in 30-day calendar** too?
